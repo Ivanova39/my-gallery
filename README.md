@@ -1,1 +1,1 @@
-https://ivanova39.github.io/
+https://ivanova39.github.io/my-gallery-1/
