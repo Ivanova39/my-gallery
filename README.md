@@ -1,1 +1,1 @@
-file:///C:/Users/Kssha/Desktop/my-gallery-1/index.html
+https://ivanova39.github.io/
